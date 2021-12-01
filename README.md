@@ -21,3 +21,9 @@
     3. Chilli
 
 [Google](https://www.google.com)
+
+![Naruto](https://i.ytimg.com/vi/6rSmjvqfqfo/maxresdefault.jpg)
+
+![Kurama](https://cdnb.artstation.com/p/assets/images/images/023/280/787/large/denis-davydov-kurama.jpg?1578680691)
+
+![Naruto With Kurama](https://i.pinimg.com/originals/10/e5/30/10e530bc108170035133952b1ed6c45e.jpg)
